@@ -1,4 +1,4 @@
-## Hi there vc e muito troxa
+## ola sou aluno de uma sALA DE 45 OU 2000 ALUNOS
 
 <!--
 **JEM1B22/JEM1B22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
