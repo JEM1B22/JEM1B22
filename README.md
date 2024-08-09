@@ -1,4 +1,4 @@
-## MEU NOME E CARLINHO
+## MEU NOME E CARLINHOS
 :Estou me desenvolvendo na linguagem DE CAVALOS
 
 :Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
